@@ -1,0 +1,15 @@
+### Dificuldade em Encontrar Informações de Acessibilidade
+
+Carlos Martins está animado para encontrar uma nova casa, mas logo se depara com uma frustração ao navegar por sites imobiliários. Embora ele filtre a busca para incluir características de acessibilidade, as informações que encontra são escassas e, muitas vezes, pouco claras. As listagens frequentemente não informam sobre a presença de rampas, calçadas adequadas ou a largura das portas, aspectos cruciais para ele, que utiliza cadeira de rodas.
+
+Em uma de suas pesquisas, Carlos se depara com um imóvel que parece promissor, mas ao tentar obter detalhes sobre a acessibilidade, ele se sente desapontado. As descrições são superficiais e não incluem informações sobre as características que garantiriam sua mobilidade e conforto em casa. Isso gera um sentimento de insegurança e desmotivação, pois ele deseja um lar que realmente atenda às suas necessidades específicas.
+
+Passando de site em site, Carlos deseja por uma plataforma imobiliária que forneça dados abrangentes sobre acessibilidade em tempo real. Ele gostaria de verificar facilmente quais os espaços possuem as adaptações necessárias, como entradas niveladas e espaço suficiente para manobras, tornando sua busca mais tranquila e eficaz, e fazendo-o sentir que suas necessidades são levadas a sério.
+
+### Busca por Interação Social e Inclusão através de Espaços de Convivência
+
+À medida que Carlos Martins prossegue em sua busca por um novo terreno acessível, ele não se limita apenas a questões de mobilidade; ele também está em busca de um ambiente que favoreça a interação social e a inclusão. Carlos acredita que um espaço de convivência bem projetado pode ser crucial para a construção de laços com vizinhos e para a criação de uma rede de apoio na comunidade. Para ele, ter um lar não é apenas sobre estrutura física, mas também sobre fazer parte de um todo maior.
+
+No entanto, ao pesquisar diferentes áreas, Carlos percebe que nem todos os bairros oferecem áreas comuns adequadas, como parques acessíveis, praças ou centros comunitários, que incentivem a interação entre os moradores. Ele se preocupa que, ao escolher um novo local, possa perder a oportunidade de participar de atividades comunitárias e eventos sociais que o ajudariam a se conectar e se sentir parte da vizinhança. Esse sentimento de isolamento potencial o deixa apreensivo quanto ao seu futuro.
+
+Carlos deseja encontrar uma comunidade que valorize espaços de convivência, onde eventos sociais possam ocorrer e onde as famílias possam se reunir. Ele imagina um cenário onde não apenas ele, mas sua filha e seu filho possam brincar e socializar com outras crianças. Uma plataforma que fornecesse informações sobre os espaços de convivência na área, suas características de acessibilidade e as atividades oferecidas ajudaria a aliviar suas incertezas. Carlos quer saber que está escolhendo um lar em um lugar que promove a interação, celebra a diversidade e permite que todos, independentemente de suas habilidades, se sintam bem-vindos e incluídos.
